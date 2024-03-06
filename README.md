@@ -1,6 +1,7 @@
 
 ![httpsmedia licdn comdmsimageD4E16AQF_FVYtluNUwgprofile-displaybackgroundimage-shrink_350_140001693495073952e=1712793600 v=beta t=T1uzlEpcHP65-H5NfDDxHoZMzoMRcTmgze-ZLtfRkl4) (httpsrishavchanda io (6)](https://github.com/anabregolin/anabregolin/assets/128608586/6fb00ec1-dbf6-4404-bbf0-278fad0683bc)
-
+<h1 align="center"></h1>
+<h3 align="center">Bolsista de pesquisa contr afake news forense e voluntariada em pesquisa sobre as urnas eletrônicas brasileiras.</h3>
 <!---👋 Hi, I’m @anabregolin
 - 👀 I’m interested in ...
 - I’m currently learning ...
