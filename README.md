@@ -1,5 +1,4 @@
-
-![httpsmedia licdn comdmsimageD4E16AQF_FVYtluNUwgprofile-displaybackgroundimage-shrink_350_140001693495073952e=1712793600 v=beta t=T1uzlEpcHP65-H5NfDDxHoZMzoMRcTmgze-ZLtfRkl4) (httpsrishavchanda io](https://github.com/anabregolin/anabregolin/assets/128608586/1aaef4d8-c154-40bc-a679-21ee7f76f2f1)
+![httpsmedia licdn comdmsimageD4E16AQF_FVYtluNUwgprofile-displaybackgroundimage-shrink_350_140001693495073952e=1712793600 v=beta t=T1uzlEpcHP65-H5NfDDxHoZMzoMRcTmgze-ZLtfRkl4) (httpsrishavchanda io (1)](https://github.com/anabregolin/anabregolin/assets/128608586/22ffdf3a-25c3-44b5-8fc2-735425189874)
 
 <!---👋 Hi, I’m @anabregolin
 - 👀 I’m interested in ...
